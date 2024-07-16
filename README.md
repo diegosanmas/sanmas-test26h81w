@@ -1,1 +1,0 @@
-# sanmas-test26h81w
